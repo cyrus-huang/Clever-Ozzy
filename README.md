@@ -1,5 +1,3 @@
-### Week 8 schedule
-
 ## Background story:
 
 Olive University is a famous university in a city where smart animals and human live together. Ozzy is a cat who is one of the several animal freshmen in the Olive University. Today is his first day on campus and he meets a girl called Lisa who’s standing beside the lake. Lisa is a nice senior and teaches him a lot about the life in the university. Meanwhile, a guy is watching Ozzy and Lisa’s talk at the corner……
